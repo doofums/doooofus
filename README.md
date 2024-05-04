@@ -1,7 +1,7 @@
 <p align="center"> <img width="1000" src="https://64.media.tumblr.com/27fd0cec23e2f48a74a2264d96d28490/ee09abb08cabc6f1-a8/s400x600/d30a6f4a80011b32afb8180bde1db82f712a73ee.pnj">
 <p align="center"> lloyd / doof  ☆  masc pref , tkn
 
-<div align="center"> 
+<img width="1000" src="https://cdn.discordapp.com/attachments/951297633366970428/1236290730943709314/IMG_9918.gif?ex=663778f7&is=66362777&hm=cdad1b5ecd913125b091a3e07a3e1006e2b3ce988d7396ed216aaf64c02a6f34&">
   
   check out my [gbook](https://diddlydoofuzz.123guestbook.com/#) n i might see ur comment!
 
