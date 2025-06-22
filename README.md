@@ -1,7 +1,7 @@
 <p align="center"> <img width="1000" src="https://64.media.tumblr.com/27fd0cec23e2f48a74a2264d96d28490/ee09abb08cabc6f1-a8/s400x600/d30a6f4a80011b32afb8180bde1db82f712a73ee.pnj">
-<p align="center"> doofus!  ☆  masc terms , t4t   
+<p align="center"> doofus  ☆  he / any , bisexual   
 <p align="center"> <img width="100" src="https://gifcity.carrd.co/assets/images/gallery85/d37f747c.gif?v=47652796">
-<p align="center"> sign my atabook under my links :-)
+<p align="center"> 4 more abt me, check out my strwpage :-)
   
 <p align="center">
   <img width="1000" src="https://64.media.tumblr.com/3f36620f44aadbe57343a3ada20afaf9/ee09abb08cabc6f1-a1/s400x600/bebdac05fbd74b043fce220672fe8fa103b5c6c2.pnj">
